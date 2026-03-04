@@ -1,0 +1,1 @@
+# ge-bahasa_indonesia_kalimat_anjuran_ajakan_larangan
